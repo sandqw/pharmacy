@@ -12,6 +12,6 @@
 ***** FOR MORE PROJECTS :- https://projectworlds.in/ *****
 
 
-sandy  kuch bhi  karte hoo yaar  jbfufwe khalid ch
+sandy  kuch bhi  karte hoo yaar  jbfufwe khalid ch afiya
 
 THANK YOU FOR DOWNLOADING :) 
